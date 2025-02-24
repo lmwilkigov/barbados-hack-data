@@ -1,0 +1,48 @@
+RESOLUTION NO.
+
+2020-04-24
+
+PARLIAMENT
+
+WHEREAS by virtue of section 28A(1) of the Emergency Management Act,
+
+Cap. 160A the Governor-General is satisﬁ ed that an emergency has arisen as a result of a
+
+person or an animal having a communicable or a notiﬁ able disease, the Governor-General
+
+may by Proclamation, on the advice of the Prime Minister after the Prime Minister has
+
+consulted, or has been advised by, the Chief Medial Ofﬁ cer, declare that a public health
+
+emergency exists;
+
+AND WHEREAS by section 28A(2) of the said Act a Proclamation is issued
+
+under section 28(1) and shall, unless previously revoked, remain in force for one month or
+
+for such longer period, not exceeding 6 months, as the House of Assembly may determine
+
+by a resolution supported by the votes of a majority of all the members of that House;
+
+AND WHEREAS a Proclamation was issued on the 28th day of March, 2020;
+
+AND WHEREAS the said Proclamation has not been revoked and is due to
+
+expire on the 27th day of April, 2020;
+
+AND  WHEREAS  the  House  of Assembly  has  by  a  vote  of  the  majority
+
+of  all  the  members  thereof,  determined  by  resolution  to  extend  the  said  Proclamation;
+
+2
+
+BE  IT  RESOLVED  that  the  Proclamation  aforesaid  is  hereby  extended  until  the
+
+30th day of June, 2020.
+
+APPROVED by the House of Assembly this                        day of                                                   , Two thousand
+
+and twenty.
+
+Speaker
+

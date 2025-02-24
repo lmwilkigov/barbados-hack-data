@@ -1,0 +1,22 @@
+PARLIAMENT
+RESOLVED that Parliament approve, in accordance with section 5 of the Land Acquisition Act, Cap. 228, the compulsory acquisition by the Crown of the parcel of land situate at Sam Lord's Castle, Long Bay in the parish of Saint Philip in this Island, together with the buildings thereon, more particularly described in the Schedule hereto, for the public purposes of housing and tourism development and also beach access.
+APPROVED by the House of Assembly this
+day
+of
+, [wo thousand and fourteen.
+Speaker
+APPROVED by the Senate this
+day of
+Two thousand and fourteen.
+President
+SCHEDULE
+FIRSTLY ALL THAT land (part of the larger area containing by
+admeasurement 23.51894 hectares) the property of Grant Hotels Inc. situate at Sam Lord's Castle, Long Bay in the parish of Saint Philip in this Island containing by admeasurement 112,507.3 square metres or thereabouts (inclusive of 3884.1 square metres in road) Abutting and Bounding to the South on an existing estate road reserve 7.92 metres wide on lands now or late of June Nurse to the West on lands now or late of Antonio Beckles, Cecil Rodney, Jewel Whitehall, Frank Toussaint, Alan Charles, Kendrick Mason, Castle Terrace Limited, Agatha Harewood, George Mann and Florence Hunte to the North on lands now or late of one Marshall, Carl Alleyne and Viola Edghill and to the east on a right of way 4.87 metres wide which leads to lands of Viola Edghill in one direction and to the public road in the other direction or however else the same may abut and bound as shown and delineated on a Plan certified on the 15% day of August, 2006 by Lloyd Powlett, Land Surveyor and recorded in the Lands and Surveys Department on the 1* day of September, 2006 as plan No. 1005/2006 SECONDLY ALL THAT land (part of the said larger area containing by admeasurement 23.51894 hectares) the property of the said Grant Hotels Inc. situate at Sam Lord's Castle, Long Bay in the parish of Saint Philip in this Island containing by admeasurement 121,813.1 square metres or thereabouts (inclusive of 1,769.5 square metres in road and 37,506.7 square metres (3.75067 hectares in Beach Area) Abutting and Bounding to the North on lands now or late of Viola Edghill to the East by the sea to the South on lands now or late of J. Davis, M.E.R. Limited, S. Owen, on other lands of the said Grant Hotels Inc., on a road reserve 9.14 metres wide on lands now or late
+of George Stewart, the Estate of one Stewart and Oscar Davis and to the West on a
+right of way 4.87 metres wide which leads to the public road in one direction and to the
+lands of Viola Edghill in the other direction cr however else the same may abut and
+bound as shown and delineated on the said plan certified on the 15" day of August, 2006 by Lloyd Powlett, Land Surveyor and recorded in the Lands and Surveys Department on the 1 day of September, 2006 as plan No. 1005/2006 and THIRDLY ALL THAT land (part of the said larger area containing by admeasurement 23.51894 hectares) the property of the said Grant Hotels Inc. situate at Sam Lord's Castle, Long Bay in the parish of Saint Philip in this Island containing by admeasurement 869.0 square metres or thereabouts Abutting and Bounding to the West on lands now or late of the Estate of Elizabeth Bierman to the North on a road reserve 9.14 metres wide and on the Beach Area to the East on lands now or late of J. Davis et al and to the South on a right of way 4.27 metres wide or however else the same may abut and bound as shown and delineated on the said Plan certified on the 15 day of August, 2006 by Lloyd Powlett, Land Surveyor and recorded in the Lands and Surveys Department on the 1% day of September, 2006 as plan No. 1005/2006 together with the hotel and other buildings, erections and
+improvements thereon known as "Sam Lord's Castle Resort Hotel".
+ADDENDUM
+On the 18* day of June, 2009 the Cabinet agreed to the compulsory acquisition of the property mentioned in this Resolution which is situated at Sam Lord's Castle, Long Bay in the parish of Saint Philip for the public purposes of providing housing and tourism development as well as beach access.
+In accordance with section 5 of the Land Acquisition Act, the approval of Parliament is now sought for the compulsory acquisition of the property described in the Schedule hereto in order that the purpose set out in this Resolution may be effected and that the Crown may acquire an indefeasible title to the said property.

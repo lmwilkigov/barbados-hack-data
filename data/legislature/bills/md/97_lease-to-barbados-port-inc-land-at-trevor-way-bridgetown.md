@@ -1,0 +1,40 @@
+PARLIAMENT
+RESOLVED that Parliament in accordance with section 5 of the Crown Lands (Vesting and Disposal) Act, Cap. 225, approve the lease to the Barbados Port Inc. of the parcel of Jand, the property of the Crown, situate in the waters off Trevor’s Way, Princess Alice Highway, in the city of Bridgetown, in the parish of Saint Michael, in this Island, more particularly described in the First Schedule to this Resolution, on the terms and conditions set out in the Second Schedule hereto, for the construction of a cruise ship pier and ancillary facilities.
+APPROVED by the House of Assembly this
+day of
+» TWo
+thousand and fifteen.
+Speaker
+APPROVED by the Senate this
+day of
+, Two
+thousand and fifteen.
+President
+FIRST SCHEDULE
+ALL THAT land (presently seabed) the property of the Crown situate in the waters off Trevor’s Way, Princess Alice Highway, in the City of Bridgetown, in the parish of Saint Michael, in this {sland containing by admeasurement 13.8 hectares or thereabouts Abutting and Bounding on lands now or formerly of the Barbados Government known as “Trevor’s Way Park”, on Jands now or formerly of the Barbados Government known as the “Bridgetown Fisheries Complex” and the Fisheries Complex Inner Basin, on the sea on two sides or however else the same may abut and bound as shown and delineated on a plan certified on the 5" day of June, 2014 by Derek C. Franklin, Land Surveyor and recorded in the Lands and Surveys Department on the 22" day of July, 2014 as Plan No. 643/2014.
+SECOND SCHEDULE
+TERMS AND CONDITIONS:
+1. The lease shall be for a term of fifty-one (51) years with an option to renew for a further forty-nine (49) years.
+. The initial rent shall be $20 000.00 per annum payable in advance.
+The rent shall be subject to review every ten (10) years and at the first rent review, the rent shall increase to $40 000.00 per annum. Thereafter, the rent shall be reviewed upward only in the sum of $40 000.00 per annum, plus ten percent (10%) of the average gross annual rental income received as land rent for the ten (10) years immediately preceding the rent review.
+The Lessee shall be responsible for all outgoings, inclusive of land taxes and municipal solid waste tax, arising from its use of the land.
+The Lessee shall be solely responsible for the cost of development of the site.
+The Lessee shall comply with the Town and Country Planning Act, Cap. 240, the Coastal Zone Management Act, Cap. 394 and all other statutory requirements throughout the term.
+Save and except as otherwise provided for in the lease, the Lessee shall not sublet or otherwise part with possession of the demised premises, in part or in full, for any period exceeding ten (10) years, without first obtaining the Lessor’s written permission and such permission shall not be unreasonably withheld.
+The Lessee may, however, sublet to the Special Purpose Vehicle for a term of up to forty- nine (49) years with an option to renew for a further forty-nine (49) years.
+The Lessee shall insure and keep insured against the usual perils, in the joint names of the Lessor and the Lessee, at all times throughout the term, all buildings and facilities erected on the demised premises against loss or damage at the full reinstatement value.
+The Lessee shal! keep the Lessor indemnified against all loss arising from its use of the premises.
+premises.
+. The Lessee shall insure against public liability with a reputable insurance company in the sum of no less than $50 million for claims arising out of a single incident, in the joint names of the Lessor and the Lessee.
+names of the Lessor and the Lessee.
+12. The Lessee shall ensure that there is no hindrance to the flow of storm-water from the existing storm-water drains at the Pelican Village Complex and the Bridgetown Fisheries Complex respectively, during or after the reclamation works.
+. The Lessee shall be authorised to enter onto Crown lands (the seabed) adjacent to the demised site, for the purposes of dredging and kecping the area safe for maritime navigation.
+14, The Lessee shall be authorised to enter onto Crown lands (the sea defence structures and drainage facilities) adjacent to the demised site, for the purposes of amending, reclaiming and connecting to the demised site.
+and connecting to the demised site.
+. Where works are carried out on adjoining Crown lands, the Lessee shall be responsible for the maintenance of these works throughout the term.
+16. The hatched area on the plan which is adjacent to the site occupied by the Bridgetown Fisheries Complex, shall not be further sublet, utilised or developed without the specific. written permission of the Minister responsible for Lands in his sole discretion.
+17. At the end of the lease or its sooner determination, the premises, with improvements, shall pass to the Crown for nil consideration.
+ADDENDUM
+On the 19" day of June, 2014, the Cabinet agreed that approximately 15 hectares of land situate in the waters off Trevor’s Way, Princess Alice Highway, in the city of Bridgetown, in the parish of Saint Michael, consisting of 13.8 hectares presently in seabed and described in the First Schedule hereto and 1.4305 hectares of land respectively, should be leased to the Barbados Port Inc. and that the Lease shall be subject to the terms and conditions set out in the Second Schedule.
+The said portion consisting of 1.4305 hectares is not made the subject of this Resolution, as it is contained in the Schedule of parcels of land to be leased to the Barbados Port Inc. under the provisions of the Barbados Port Inc. (Transfer of Management and Vesting of Assets) Act, Cap. 285B.
+In accordance with section 5 of the Crown Lands (Vesting and Disposal) Act, Cap. 225, the approval of Parliament is now sought for the lease to the Barbados Port Inc. of the parcel of land, more particularly described in the First Schedule to this Resolution, on the terms and conditions set out in the Second Schedule hereto, for the construction of a cruise ship pier and ancillary facilities.

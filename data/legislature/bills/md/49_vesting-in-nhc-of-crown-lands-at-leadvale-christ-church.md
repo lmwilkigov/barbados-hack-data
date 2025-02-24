@@ -1,0 +1,27 @@
+PARLIAMENT
+RESOLVED that Parliament, in accordance with section 5 of the Crown Lands (Vesting and Disposal) Act, Cap. 225, approve the vesting in the National Housing Corporation of the parcels of land, the property of the Crown, situate at Lead Vale in the parish of Christ Church in this Island, and more particularly described in the Schedules to this Resolution, for residential purposes.
+APPROVED by the House of Assembly this day of thousand and fourteen.
+Two thousand and fourteen.
+Speaker
+APPROVED by the Senate this
+day of
+Two thousand and fourteen.
+President
+;
+;
+FIRST SCHEDULE
+ALL THAT LAND, (part of a larger area of 33398.7 square metres) situate at Lead Vale in the parish of Christ Church in this Island containing by admeasurement 4371.2 square metres or thereabouts (inclusive of 555.7 square metres in road reserve) being the Lot numbered 1 abutting and bounding on the Lot numbered 2 on a road reserve 8 metres wide leading to a public road in one direction on lands now or formerly of the Barbados Government now or formerly known as Coverly Plantation on two sides on lands now or formerly of the Barbados Government or however else the same may abut and bound as shown and delineated on a Plan certified on the 17" day of October, 2013 by Andrew R. Bannister, Land Surveyor, and recorded in the Lands and Surveys Department on the 22" day of October, 2013 as Plan No. 1045/2013.
+SECOND SCHEDULE
+ALL THAT LAND, (part of a larger area of 33398.7 square metres) situate at Lead Vale in the parish of Christ Church in this Island containing by admeasurement 17026.1 square metres or thereabouts (inclusive of 1531.8 square metres in road reserve) being the Lot numbered 2 abutting and bounding on lands now or formerly of the Barbados Government now or formerly known as Coverly Plantation Tenantry on a road reserve 8 metres wide which leads to a public road in one direction on the Lot numbered 1 on lands now or formerly of the Barbados Government on the Lot numbered 3 on two sides on lands now or formerly of the Barbados Government now or formerly known as Coverly Plantation on lands now or formerly of Richard Hurley or however else the same may abut and bound as shown and delineated on a Plan certified on the 17" day of October, 2013 by Andrew R. Bannister, Land Surveyor, and recorded in the Lands and Surveys Department on the 224 day of October, 2013 as Plan No. 1045/2013.
+THIRD SCHEDULE
+ALL THAT LAND (part of a larger area of 33398.7 square metres) situate at Lead Vale in the parish of Christ Church in this Island containing by admeasurement 5638.1 square metres or thereabouts (inclusive of 1280.2 square metres in road reserve) being the Lot numbered 3 abutting and bounding on the Lot numbered 2 on three sides on lands now or formerly of the Barbados Government on the Lot numbered 4 or however else the same may abut and bound as shown and delineated on a Plan certified on the 17" day of October, 2013 by Andrew R. Bannister, Land Surveyor, and recorded in the Lands and Surveys Department on the 22™ day of October, 2013 as Plan No. 1045/2013.
+FOURTH SCHEDULE
+ALL THAT LAND (part of a larger area of 33398.7 square metres) situate at Lead Vale in the parish of Christ Church in this Island containing by admeasurement 6363.3 square metres or thereabouts (inclusive of 775.2 square metres in road reserve) being the Lot numbered 4 abutting and bounding on the Lot numbered 3 on lands now or formerly of the Barbados Government on lands now or formerly of the Barbados Government, now or formerly known as Coverly Plantation on three sides or however else the same may abut and bound as shown and delineated on a Plan certified on the 17" day of October, 2013 by Andrew R. Bannister, Land Surveyor, and recorded in the Lands and Surveys Department on the 22™ day of October, 2013 as Plan No. 1045/2013.
+FIFTH SCHEDULE
+ALL THAT LAND situate at Lead Vale in the parish of Christ Church in this Island containing by admeasurement 9298.0 square metres or thereabouts (inclusive of 1669.8 square metres in road reserve) being the Lots numbered 1 to 12 abutting and bounding on a reserve 8 metres wide on four sides leading to Fairview in one direction or however else the same may abut and bound as shown and delineated on a Key Plan certified on the 5" day of January, 2010 by Brandford K.M. Howell, Land Surveyor, and recorded in the Lands and Surveys Department on the 4" day of March, 2010 as Plan No. 268/2010.
+ALL THAT LAND situate at Lead Vale in the parish of Christ Church in this
+Department on the 4" day of March, 2010 as Plan No. 268/2010.
+ADDENDUM
+On the 2™ day of January 2014 the Cabinet of Barbados agreed to the vesting of 33, 398.7 and 9,298 square metres respectively of Crown lands situate at Lead Vale in the parish of Christ Church in the National Housing Corporation for residential purposes.
+The said two parcels of land comprising 33,398.7 and 9,298 square metres respectively formed part of lands which were acquired by the Crown by virtue of a Conveyance dated the 1‘ day of November, 1978 from Eugene Roy House ef al to the Crown, recorded in the Land Registry of this Island on the 22™ day of January, 1979 as Deed No. 434 of 1979, Vol. 1591 page 583.
+In accordance with the provisions of section 5 of the Crown Lands (Vesting and Disposal) Act, Cap. 225, the approval of Parliament is now sought for the vesting in the National Housing Corporation of the parcels of land, more particularly described in the Schedules to this Resolution for residential purposes.
