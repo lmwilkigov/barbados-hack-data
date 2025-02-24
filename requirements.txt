@@ -1,0 +1,12 @@
+beautifulsoup4
+pandas
+openai
+python-dotenv
+tqdm
+jupyter
+requests
+markitdown
+python-docx
+colorlog
+humanize
+pyrosm
